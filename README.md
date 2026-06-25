@@ -9,7 +9,7 @@
 |------|-----------|----------|
 | **Gia đình 1** | 2 vợ chồng + Jo (trai, 17t) + Sumi (gái, 11t) | Hà Nội ✈️ Cam Ranh |
 | **Anh Hà** | 1 người | HCM ✈️ Cam Ranh |
-| **Gia đình 2 (bạn)** | 2 vợ chồng + con gái (14t) + con trai (9t) | Thỏa thuận riêng |
+| **Gia đình anh Tài** | Tài & Thư + Bí Đỏ (14t) + Cafe (9t) | Thỏa thuận riêng |
 
 > Vé máy bay khứ hồi đã có. Cần đặt: xe đưa đón, lưu trú, tour hoạt động.
 

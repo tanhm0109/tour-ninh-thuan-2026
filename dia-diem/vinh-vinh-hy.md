@@ -37,14 +37,14 @@ Vịnh Vĩnh Hy là trái tim của cả chuyến đi — được xếp vào 4 
 
 ## Phù Hợp Với Ai Trong Đoàn?
 
-Hoàn toàn phù hợp tất cả 9 người, kể cả con trai 9t và Sumi 11t.
+Hoàn toàn phù hợp tất cả 9 người, kể cả Cafe (9t) và Sumi (11t).
 
 | Hoạt động | Ai tham gia |
 |-----------|------------|
-| Lặn ống thở ngắm san hô | Jo, con gái 14t, người lớn |
+| Lặn ống thở ngắm san hô | Jo, Bí Đỏ (14t), người lớn |
 | Thuyền đáy kính | **Tất cả** — kể cả không biết bơi |
-| Kayak/SUP | Jo, con gái 14t, người lớn (trẻ nhỏ ngồi cùng) |
-| Câu cá từ thuyền | **Tất cả** — Sumi và con trai 9t rất thích |
+| Kayak/SUP | Jo, Bí Đỏ (14t), người lớn (trẻ nhỏ ngồi cùng) |
+| Câu cá từ thuyền | **Tất cả** — Sumi và Cafe (9t) rất thích |
 | Thăm làng chài nổi | **Tất cả** |
 | Tắm biển bãi hoang | **Tất cả** |
 
@@ -56,7 +56,7 @@ Hoàn toàn phù hợp tất cả 9 người, kể cả con trai 9t và Sumi 11t
 07:00  Xuống thuyền từ bến làng Vĩnh Hy
 07:15  Ra vịnh — ngắm cảnh núi bao quanh
 07:30  Đến điểm lặn san hô số 1 (lặn ống thở 45 phút)
-08:30  Thuyền đáy kính cho Sumi + con trai (cùng lúc)
+08:30  Thuyền đáy kính cho Sumi + Cafe (9t) (cùng lúc)
 09:15  Di chuyển đến Hòn Rùa (~15 phút)
 09:30  Tắm biển + lặn tại Hòn Rùa (90 phút)
 11:00  Câu cá từ thuyền (30 phút)
@@ -86,6 +86,6 @@ Hoàn toàn phù hợp tất cả 9 người, kể cả con trai 9t và Sumi 11t
 
 - Đặt thuyền qua chủ homestay — thường có mối quen, giá tốt hơn và đáng tin hơn
 - Mang theo đồ ăn nhẹ, nước uống đủ cho cả ngày
-- Áo phao bắt buộc cho Sumi (11t) và con trai (9t) khi trên thuyền
+- Áo phao bắt buộc cho Sumi (11t) và Cafe (9t) khi trên thuyền
 - Kem chống nắng reef-safe (không gây hại san hô)
 - Tuyệt đối không xả rác xuống vịnh

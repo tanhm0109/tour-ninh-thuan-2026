@@ -6,7 +6,7 @@
 
 ### Di chuyển
 - **Gđ 1 + Anh Hà:** Bay từ Nội Bài → Cam Ranh → đón xe 16 chỗ đặt sẵn → Vĩnh Hy (~1.5–2h)
-- **Gđ 2 (bạn):** Thỏa thuận điểm gặp (Cam Ranh hoặc thẳng Vĩnh Hy)
+- **Gđ anh Tài:** Thỏa thuận điểm gặp (Cam Ranh hoặc thẳng Vĩnh Hy)
 - Dự kiến đến Vĩnh Hy: **13:00–14:30**
 
 ### Buổi chiều
@@ -27,7 +27,7 @@
 - **6:00** Sáng sớm: ăn bánh mì hoặc bún cá tại quán địa phương
 - **7:00** Xuống thuyền: **Tour cano/thuyền gỗ khám phá vịnh**
   - Lặn ngắm san hô (hơn 350 loài) với kính lặn & ống thở
-  - Thuyền đáy kính cho ai không lặn (Sumi 11t, con trai 9t)
+  - Thuyền đáy kính cho ai không lặn (Sumi 11t, Cafe (9t))
   - Thăm bãi biển hoang trên vịnh
   - Tham quan làng chài nổi trên biển
 - **11:30** Cá câu được (nếu có) đem vào bờ nướng tại chỗ
@@ -35,7 +35,7 @@
 ### Buổi chiều (13:00–17:00)
 - **13:00** Ăn trưa tại nhà bè – tôm hùm/cá hấp/mực nướng
 - **14:30** Kayak & SUP quanh vịnh (2–3h)
-  - Phù hợp mọi lứa tuổi, kể cả Jo (17t) và con gái 14t
+  - Phù hợp mọi lứa tuổi, kể cả Jo (17t) và Bí Đỏ (14t)
   - Thuê tại bờ: ~100–150k/thuyền/giờ
 - **17:00** Tắm biển tự do, chụp ảnh hoàng hôn
 
@@ -58,13 +58,13 @@
 ### Buổi sáng (9:00–12:00)
 - Khám phá **bãi biển Bình Tiên** hoặc các bãi hoang gần Hang Rái
 - Thuê xe máy chạy dọc đường ven biển – chụp ảnh phong cảnh
-- Con trẻ nhỏ (Sumi, con trai 9t) có thể ở lại homestay hoặc bãi tắm an toàn
+- Con trẻ nhỏ (Sumi, Cafe (9t)) có thể ở lại homestay hoặc bãi tắm an toàn
 
 ### Buổi chiều (13:00–17:00)
 - **13:00** Ăn trưa
 - **14:00** **Câu cá từ thuyền hoặc bờ đá**
   - Thuê cần câu tại bến thuyền hoặc mua tại cửa hàng địa phương
-  - Jo (17t) và con gái (14t) sẽ rất thích trải nghiệm này
+  - Jo (17t) và Bí Đỏ (14t) sẽ rất thích trải nghiệm này
   - Có thể thuê hẳn 1 thuyền nhỏ ra gần rạn san hô câu (~300–500k/thuyền)
 - **17:00** Nghỉ về homestay, tắm rửa
 
@@ -72,7 +72,7 @@
 - **Câu mực đêm (mực ống)** từ thuyền ra vịnh
   - Hỏi chủ homestay hoặc ngư dân địa phương để đặt trước
   - Chi phí thuê thuyền + đèn câu mực: ~500–800k/thuyền (4–6 người)
-  - Trải nghiệm thú vị cho cả Jo, con trai 9t và người lớn
+  - Trải nghiệm thú vị cho cả Jo, Cafe (9t) và người lớn
   - Mực câu về có thể nhờ nướng hoặc xào tại quán
 
 ---
@@ -110,7 +110,7 @@
   - Trekking tuyến nhẹ (phù hợp gia đình): rừng khô hạn độc đáo nhất Đông Nam Á
   - Qua suối Lồ Ồ mát lạnh giữa rừng
   - Ngắm động thực vật đặc hữu: voọc chà vá chân đen, đại bàng đầu trắng...
-  - Jo (17t) và con gái (14t): có thể chọn tuyến dài hơn nếu muốn
+  - Jo (17t) và Bí Đỏ (14t): có thể chọn tuyến dài hơn nếu muốn
 - **11:30** Ra khỏi rừng, tắm suối/thác nếu có
 
 ### Buổi chiều (13:00–17:00)

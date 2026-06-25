@@ -44,9 +44,9 @@ Hòn Rùa là hòn đảo nhỏ nằm giữa lòng vịnh Vĩnh Hy, tên gọi x
 | Thành viên | Hoạt động phù hợp |
 |-----------|------------------|
 | **Jo (17t)** | Lặn ống thở, bơi tự do, chụp ảnh dưới nước |
-| **Con gái (14t)** | Lặn ống thở, kayak quanh đảo, chụp ảnh |
+| **Bí Đỏ (14t)** | Lặn ống thở, kayak quanh đảo, chụp ảnh |
 | **Sumi (11t)** | Thuyền đáy kính, tắm biển nước nông, chụp ảnh |
-| **Con trai (9t)** | Thuyền đáy kính, tắm biển nước nông |
+| **Cafe (9t)** | Thuyền đáy kính, tắm biển nước nông |
 | **Người lớn** | Lặn ống thở, lặn có bình (nếu muốn), câu cá, chụp ảnh |
 
 > ✅ Phù hợp tất cả mọi người. Trẻ nhỏ không biết bơi mặc áo phao, ngồi thuyền đáy kính ngắm san hô từ trên.

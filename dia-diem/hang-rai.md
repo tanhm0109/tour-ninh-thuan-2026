@@ -47,9 +47,9 @@ Bình minh tại Hang Rái là một trong những cảnh sắc đẹp nhất mi
 | Thành viên | Phù hợp | Lưu ý |
 |-----------|---------|-------|
 | **Jo (17t)** | ✅ Rất phù hợp | Chụp ảnh, khám phá địa hình đá |
-| **Con gái (14t)** | ✅ Rất phù hợp | Chụp ảnh, tắm bể đá tự nhiên |
+| **Bí Đỏ (14t)** | ✅ Rất phù hợp | Chụp ảnh, tắm bể đá tự nhiên |
 | **Sumi (11t)** | ⚠️ Cần cẩn thận | Đá sắc, cần người lớn đi kèm, đi dép đế dày |
-| **Con trai (9t)** | ⚠️ Cần cẩn thận | Tương tự Sumi, không để tự đi |
+| **Cafe (9t)** | ⚠️ Cần cẩn thận | Tương tự Sumi, không để tự đi |
 | **Người lớn** | ✅ Hoàn toàn | Chụp ảnh, tắm biển, ngắm cảnh |
 
 ---

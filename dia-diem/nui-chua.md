@@ -43,16 +43,16 @@ Núi Chúa không chỉ là rừng — đây là một hệ sinh thái **độc 
 - **Lộ trình:** Cổng VQG → Suối Lồ Ồ → Nghỉ tắm suối → Trở về
 - **Khoảng cách:** 3–4km một chiều
 - **Thời gian:** 2–3 tiếng
-- **Độ khó:** ⭐ (dễ, phù hợp Sumi 11t và con trai 9t)
+- **Độ khó:** ⭐ (dễ, phù hợp Sumi 11t và Cafe (9t))
 - **Điểm nổi bật:** Rừng khô đặc trưng, suối mát, có thể gặp động vật
 
-### Tuyến Vừa (Cho Jo 17t + con gái 14t + người lớn khỏe)
+### Tuyến Vừa (Cho Jo 17t + Bí Đỏ (14t) + người lớn khỏe)
 - **Lộ trình:** Cổng VQG → Đỉnh phụ → Toàn cảnh vịnh → Trở về
 - **Khoảng cách:** 8–10km
 - **Thời gian:** 4–5 tiếng
 - **Độ khó:** ⭐⭐⭐
 
-> 💡 **Gợi ý:** Tách đoàn — người lớn và trẻ lớn đi tuyến vừa, bố/mẹ thay phiên dẫn Sumi + con trai 9t đi tuyến nhẹ rồi chờ tại suối.
+> 💡 **Gợi ý:** Tách đoàn — người lớn và trẻ lớn đi tuyến vừa, bố/mẹ thay phiên dẫn Sumi + Cafe (9t) đi tuyến nhẹ rồi chờ tại suối.
 
 ---
 
@@ -61,9 +61,9 @@ Núi Chúa không chỉ là rừng — đây là một hệ sinh thái **độc 
 | Thành viên | Tuyến | Ghi chú |
 |-----------|-------|--------|
 | **Jo (17t)** | Tuyến vừa | Sẽ thích thử thách |
-| **Con gái (14t)** | Tuyến vừa | Phù hợp thể lực |
+| **Bí Đỏ (14t)** | Tuyến vừa | Phù hợp thể lực |
 | **Sumi (11t)** | Tuyến nhẹ | Cần người lớn đi kèm |
-| **Con trai (9t)** | Tuyến nhẹ | Cần người lớn đi kèm |
+| **Cafe (9t)** | Tuyến nhẹ | Cần người lớn đi kèm |
 | **Người lớn** | Tuyến nhẹ hoặc vừa | Tùy sức khỏe |
 
 ---

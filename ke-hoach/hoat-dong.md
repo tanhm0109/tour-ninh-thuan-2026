@@ -13,7 +13,7 @@
 - Ghé các bãi biển hoang trên vịnh
 - Câu cá từ thuyền
 
-**Phù hợp:** Tất cả mọi người kể cả Sumi (11t) và con trai (9t)
+**Phù hợp:** Tất cả mọi người kể cả Sumi (11t) và Cafe (9t)
 
 **Chi phí ước tính:**
 - Tour thuyền gỗ nửa ngày: 150–200k/người
@@ -45,7 +45,7 @@
 - Mang theo máy ảnh / điện thoại chống nước
 - Giá vé vào khu: ~30–50k/người
 
-**Phù hợp:** Người lớn + thanh thiếu niên (Jo 17t, con gái 14t). Trẻ nhỏ hơn cần cẩn thận địa hình đá.
+**Phù hợp:** Người lớn + thanh thiếu niên (Jo 17t, Bí Đỏ (14t)). Trẻ nhỏ hơn cần cẩn thận địa hình đá.
 
 ---
 
@@ -53,7 +53,7 @@
 
 **Mô tả:** Chèo thuyền kayak hoặc đứng bảng SUP trên mặt nước trong xanh của vịnh.
 
-**Phù hợp:** Jo (17t), con gái (14t) và người lớn sẽ rất thích. Sumi (11t) và con trai (9t) ngồi cùng người lớn.
+**Phù hợp:** Jo (17t), Bí Đỏ (14t) và người lớn sẽ rất thích. Sumi (11t) và Cafe (9t) ngồi cùng người lớn.
 
 **Chi phí:** 80–150k/thuyền/giờ (thuê tại bờ hoặc qua homestay)
 
@@ -69,7 +69,7 @@
 **Tips:**
 - Câu tốt nhất vào sáng sớm hoặc chiều muộn
 - Khu vực quanh rạn san hô nhiều cá hơn
-- Phù hợp cho cả Jo, con gái 14t, và bố mẹ
+- Phù hợp cho cả Jo, Bí Đỏ (14t), và bố mẹ
 
 ---
 
@@ -93,7 +93,7 @@
 
 **Tuyến phù hợp gia đình:**
 - Tuyến nhẹ qua suối Lồ Ồ: 3–4km, 2–3 tiếng, phù hợp mọi lứa tuổi
-- Tuyến khó hơn lên đỉnh (1,039m): chỉ dành cho người trẻ khỏe (Jo, con gái 14t)
+- Tuyến khó hơn lên đỉnh (1,039m): chỉ dành cho người trẻ khỏe (Jo, Bí Đỏ (14t))
 
 **Chi phí:**
 - Vé vào cổng: ~40–50k/người
@@ -154,7 +154,7 @@
 
 ## Gợi Ý Lịch Trình Hoạt Động Theo Tuổi
 
-| Hoạt động | Sumi 11t | Con trai 9t | Jo 17t | Con gái 14t | Người lớn |
+| Hoạt động | Sumi 11t | Cafe (9t) | Jo 17t | Bí Đỏ (14t) | Người lớn |
 |-----------|---------|------------|--------|------------|----------|
 | Thuyền đáy kính | ✅ | ✅ | ✅ | ✅ | ✅ |
 | Kayak | ✅ (cùng bố mẹ) | ✅ (cùng bố mẹ) | ✅ | ✅ | ✅ |

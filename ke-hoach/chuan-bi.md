@@ -9,7 +9,7 @@
 - [ ] **Vĩnh Hy Resort 1 đêm** (5 phòng) — gọi 02593.771.999 hoặc 0918.114.989
 - [ ] **Mid-range hotel 1 đêm** (5 phòng) — Duc Loan Hotel hoặc Mong An Hotel
 - [ ] **Xe 16 chỗ Cam Ranh ↔ Vĩnh Hy** — đặt cả 2 chiều khi book xe
-- [ ] Xác nhận giờ bay với Gđ 2 (bạn) để đặt xe phù hợp
+- [ ] Xác nhận giờ bay với Gđ anh Tài để đặt xe phù hợp
 - [ ] Đặt tour thuyền/cano ngày 17/8 (1–2 tuần trước)
 - [ ] Hỏi homestay về câu mực đêm, đặt ngày 18/8
 - [ ] Hỏi về hướng dẫn viên Núi Chúa (đặt trước ngày 20/8)
@@ -34,7 +34,7 @@
 
 ### Vật Dụng Biển
 - [ ] Kính lặn + ống thở (có thể thuê tại bến, nhưng mang theo sẽ tiết kiệm)
-- [ ] Áo phao (cần cho Sumi 11t và con trai 9t khi kayak)
+- [ ] Áo phao (cần cho Sumi 11t và Cafe (9t) khi kayak)
 - [ ] Túi chống nước cho điện thoại
 - [ ] Kem chống nắng SPF 50+ (mang nhiều, dùng liên tục)
 - [ ] Dép chống trơn dưới nước
@@ -66,11 +66,11 @@
 - Thỉnh thoảng có mưa dông buổi chiều — mang áo mưa nhẹ
 
 ### An Toàn Cho Trẻ Em
-- Sumi (11t) và con trai (9t) **luôn mặc áo phao** khi trên thuyền/kayak
+- Sumi (11t) và Cafe (9t) **luôn mặc áo phao** khi trên thuyền/kayak
 - Không để trẻ nhỏ tự bơi xa bờ ở Hang Rái (đá sắc)
 - Bôi kem chống nắng cho trẻ mỗi 2 tiếng
 - Hạn chế cho trẻ ăn hải sản chưa được chế biến kỹ
-- Mang theo thuốc say tàu cho Sumi và con trai 9t
+- Mang theo thuốc say tàu cho Sumi và Cafe (9t)
 
 ### Sức Khoẻ
 - Uống đủ nước (ít nhất 2L/người/ngày trong điều kiện nắng nóng)

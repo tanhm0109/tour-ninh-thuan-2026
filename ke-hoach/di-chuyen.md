@@ -11,7 +11,7 @@
 - **Vé đã có:** Khứ hồi ✅
 - **Gợi ý giờ bay về:** Book chuyến sau 12:00 ngày 22/8 để buổi sáng còn đủ thời gian
 
-### Gia đình 2 (bạn): Tự thỏa thuận
+### Gia đình anh Tài: Tự thỏa thuận
 - Nếu từ HCM: Bay đến Cam Ranh (~1h bay)
 - Nếu từ Hà Nội: Tương tự gia đình 1
 - Điểm gặp: Tại Cam Ranh hoặc tại Vĩnh Hy (thỏa thuận trước)
@@ -38,7 +38,7 @@
 - 1 xe 7 chỗ: ~900k/lượt (Cam Ranh → Vĩnh Hy)
 - 2 xe: ~1.8M/chiều
 - Gđ 1 + Anh Hà: 5 người → 1 xe
-- Gđ 2: 4 người → 1 xe
+- Gđ anh Tài: 4 người → 1 xe
 
 ### Lựa chọn 3: Taxi/Grab
 - Grab/taxi thông thường: ~600–700k/xe 4 chỗ

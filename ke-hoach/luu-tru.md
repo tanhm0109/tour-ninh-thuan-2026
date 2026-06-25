@@ -6,7 +6,7 @@
 |------|-------------|--------|
 | Gđ 1 (2 người lớn + Jo 17t + Sumi 11t) | 2 phòng | 1 đôi cho bố mẹ, 1 twin/family cho 2 con |
 | Anh Hà | 1 phòng | Phòng đơn hoặc đôi |
-| Gđ 2 (2 người lớn + 2 con) | 2 phòng | 1 đôi cho bố mẹ, 1 twin/family cho 2 con |
+| Gđ anh Tài (Tài & Thư + Bí Đỏ + Cafe) | 2 phòng | 1 đôi cho bố mẹ, 1 twin/family cho 2 con |
 | **Tổng** | **5 phòng** | |
 
 ---
