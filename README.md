@@ -31,6 +31,21 @@
 
 ---
 
+## Địa Điểm Tham Quan
+
+| # | Địa điểm | Đánh giá | Độ khó | Phù hợp trẻ em | Ngày đề xuất |
+|---|----------|----------|--------|---------------|-------------|
+| 1 | [🐢 Hòn Rùa](dia-diem/hon-rua.md) | ⭐⭐⭐⭐⭐ | Dễ | ✅ Tất cả | Ngày 2 (17/8) |
+| 2 | [🌊 Hang Rái](dia-diem/hang-rai.md) | ⭐⭐⭐⭐⭐ | Trung bình | ⚠️ Trẻ cần cẩn thận | Ngày 3 sáng sớm (18/8) |
+| 3 | [⛵ Vịnh Vĩnh Hy](dia-diem/vinh-vinh-hy.md) | ⭐⭐⭐⭐⭐ | Dễ | ✅ Tất cả | Ngày 2 (17/8) |
+| 4 | [🌿 Núi Chúa](dia-diem/nui-chua.md) | ⭐⭐⭐⭐ | Trung bình | ✅ Tuyến nhẹ | Ngày 5 (20/8) |
+| 5 | [🏖️ Bãi Bình Tiên](dia-diem/binh-tien.md) | ⭐⭐⭐⭐ | Dễ | ✅ Tất cả | Ngày 3 chiều (18/8) |
+| 6 | [🏝️ Bình Lập](dia-diem/binh-lap.md) | ⭐⭐⭐⭐⭐ | Dễ | ✅ Tất cả | Ngày 6 (21/8) |
+
+> Đánh giá chi tiết từng điểm: ảnh, video, gợi ý hoạt động theo từng thành viên xem tại [`dia-diem/`](dia-diem/README.md)
+
+---
+
 ## Tài liệu kế hoạch
 
 - [`ke-hoach/lich-trinh.md`](ke-hoach/lich-trinh.md) — Lịch trình chi tiết từng ngày
