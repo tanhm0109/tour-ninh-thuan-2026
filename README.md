@@ -11,7 +11,9 @@
 | **Anh Hà** | 1 người | HCM ✈️ Cam Ranh |
 | **Gia đình anh Tài** | Tài & Thư + Bí Đỏ (14t) + Cafe (9t) | Thỏa thuận riêng |
 
-> Vé máy bay khứ hồi đã có. Cần đặt: xe đưa đón, lưu trú, tour hoạt động.
+> ⚠️ Gia đình anh Tài đang cân nhắc, chưa chốt tham gia.
+
+> Vé máy bay khứ hồi đã có (Gia đình 1 + Anh Hà). Cần đặt: xe đưa đón, lưu trú, tour hoạt động.
 
 ---
 
